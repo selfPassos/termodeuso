@@ -1,2 +1,0 @@
-# termodeuso
-# termodeuso
